@@ -5,3 +5,5 @@ Great games for school if you are bored. This site is made to uncensor school ch
 Play games for free like Minecraft, half life and crossy road. 
 Watch movies and play your favorite retro games.
 Hope you enjoy and do not take this website as your own. 
+
+Link: https://sites.google.com/britishstudent.se/dddd/home
